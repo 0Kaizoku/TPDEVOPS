@@ -1,2 +1,2 @@
 # TPDEVOPS
-idk why m doing this cz its llike running blindfolded
+idk why m doing this cz its like running blindfolded
